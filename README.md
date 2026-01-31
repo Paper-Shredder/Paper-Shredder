@@ -18,7 +18,7 @@
 <br>➵ Ableists.
 <br>➵ People who enjoy, defend/justify, or joke about inc_st, p_do/z_o/n_crophilia, and s_xual violence. This includes proshippers.
 <br>➵ People who go out of their way to harrass people with TT/TD. I could not care less about the debate of whether it's real or not, I just think harrassing people is gross.
-<br>➵ People who feed into cringe culture (hating on furries, alterhumanity, oc x canon, selfships, etc).
+<br>➵ People who feed into cringe culture, such as hating on the following: furries, alterhumanity, OC x canon, and selfships.
 
 <b>﹒Pony Town-Specific Information:</b>
 <br>➵ If I have the 🌙 status, I'm AFK (away from keyboard). If I have the ⛔ status, I'm either AFK or not in the mood to interact with people I'm not friends with.
