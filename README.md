@@ -1,6 +1,10 @@
 ## Paper Shredder's GitHub for Pony Town!
 <p>Hello world! I'm Paper, Azzy, or any of my <a href="https://prns.cc/nohej">other names</a> (^^). I tend to be awkward around strangers and people I don't know well, but I try not to bite! Though, I am quite fond of the block button. If you're curious, you can find a list of my interests <a href="https://rentry.co/all-hallows-eve">here</a>.</p>
 
+<p align="center">
+    <img src="https://komarev.com/ghpvc/?username=Paper-Shredder&color=8f47b3&style=plastic&label=Candles&abbreviated=true">
+</p>
+
 <b>﹒Before You Interact:</b>
 <br>➵ I'm one of those people that the guys at Cringe Culture Inc. hate; neurodivergent, queer, an alterhuman, and a selfshipper.
 <br>➵ To elaborate on part of the previous note, one of the traits a part of my neurodivergence is that I sometimes struggle to produce written/typed language. If I go completely silent while responding in other ways, this is likely why.
