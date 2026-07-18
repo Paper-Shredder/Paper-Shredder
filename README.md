@@ -1,5 +1,5 @@
 <p align="center">
-    <img src="https://komarev.com/ghpvc/?username=Paper-Shredder&color=8f47b3&style=plastic&label=Candles&abbreviated=true">
+    <img src="https://komarev.com/ghpvc/?username=Paper-Shredder&color=8f47b3&style=plastic&label=Carvings&abbreviated=true">
 </p>
 
 ## Paper Shredder's GitHub for Pony Town!
